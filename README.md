@@ -40,7 +40,7 @@
 利于排名：增强用户停留时间、减少跳出率、提升相关性
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/tittt2611/888888 ）</span>
 
 
 
